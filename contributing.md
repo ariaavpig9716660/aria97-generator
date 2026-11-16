@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[![Download Hentai Telegram Bot](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/hentai-telegram-nsfw-updated)
+[![Download Hentai Telegram Bot](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://share.google/VALpxOPa9uub1VyrY)
 
 </div>
 
@@ -63,7 +63,7 @@
 
 <div align="center">
 
-[![Download Hentai Telegram Bot](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/hentai-telegram-nsfw-updated)
+[![Download Hentai Telegram Bot](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://share.google/VALpxOPa9uub1VyrY)
 
 </div>
 
@@ -181,7 +181,7 @@ Deploy your own NSFW content bot on Telegram for free. **Hentai Telegram Bot –
 
 <div align="center">
 
-[![Download Hentai Telegram Bot](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/hentai-telegram-nsfw-updated)
+[![Download Hentai Telegram Bot](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://share.google/VALpxOPa9uub1VyrY)
 
 **Version 4.5.0** — Free NSFW Telegram bot. May 2026 update. Zero cost. Adults only 18+.
 
